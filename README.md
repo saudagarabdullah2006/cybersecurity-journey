@@ -2,6 +2,7 @@
 The Journey's Beginning
 
 It is the 6th of July just the next day Brazil was eliminated by the norway
+ | FIFA Worldcup 2026
 
 Assalamu Alaikum and Greetings! This is Abdullah Saudagar 
 
