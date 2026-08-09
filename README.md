@@ -5,7 +5,6 @@ It is the 7th of July the day GOAT lost his last Worldcup
  | FIFA Worldcup 2026
 
 Assalamu Alaikum and Greetings! This is Abdullah Saudagar 
-
 Bismillah
 
 And this is my first repository for my journey to write
